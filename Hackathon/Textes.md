@@ -16,7 +16,7 @@ Avec Re-sceptre (collectif d’habitants de la rue du Sceptre) ?
 
 **2)	Abris portables**
 
-Venez apprendre à créer des abris portables, idéale couvert d’appoint, extensible, léger et portable. Prenez part prenez part au design et à la production locale d’objet unique alliant pliages et outils numériques. A l’aide de grands cartons et de systèmes d’attaches vous inventerez ensemble de nouvelles façon de concevoir l’habitant ou simplement de ce créer une scène.
+Venez apprendre à créer des abris en carton, légers et portables. Prenez part au design et à la production locale d’objet unique alliant pliages et outils numériques. Vous inventerez ensemble de nouvelles façon de concevoir l’habitant, sous forme de module pour réhabiliter des espaces intérieurs ou comme maison d'appoint pour l'extérieur.
 
 --> Création d’abris en origami, flexible, pliable et transportable, en carton. Prévoir un prototype, proposer de le faire en plus grand/plus long ou d’en trouver un autre. Proposer de réfléchir à l’imperméabilisation du carton et du système de transport.
 Avec étudiants en architecture ? 
